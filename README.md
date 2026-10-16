@@ -1,0 +1,2 @@
+# premium-low-tech-tank-001-low-tech-walstad-tank-soil-c
+Tired of your Walstad tank turning into a muddy mess or struggling to keep your soil craft consistent? The Low Tech Walstad Tank &amp; Soil Craft Hub is your central command center for mastering the Walstad method without the guesswork.  This Notion template eliminates the chaos of managing a low-tech, soil-based aquarium by giving you a structured sys
